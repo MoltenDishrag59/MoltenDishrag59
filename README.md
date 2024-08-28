@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Joe Updog Balls, age 69
+- 👋 Hi, I’m Bill Bakerson (not my real name, just staying more anonymous :])
 - 👀 I’m interested in stuff
 - 🌱 I’m currently learning coding
 - 💞️ I’m not looking to collaborate on anything atm
